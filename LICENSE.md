@@ -1,4 +1,4 @@
-# 
+# elite NFT Flip Bot for nft flip bot | NFT-sniping & mint-detection offers the most advanced nft flip bot, with NFT-sniping and mint-detection. Ideal for professional NFT traders
 
 
 
